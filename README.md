@@ -10,6 +10,12 @@
 **cumplo años el 9 de diciembre**
 
 
+me interesa saber sobre todo lo que rodea la programacion comunitaria de git
+
+
+estoy trabajando en interactuar con las funciones de git
+
+
 :sunglasses:soy una persona muy graciosa ademas de ser muy extrovertida
 
 
