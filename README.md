@@ -1,9 +1,3 @@
-### Hi there 👋
-
-<!--
-**NicolasPabonMogollon1102/NicolasPabonMogollon1102** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
-
-
 :smiley:**hola**
 
 
