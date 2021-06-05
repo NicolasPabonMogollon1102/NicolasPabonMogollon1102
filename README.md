@@ -22,11 +22,6 @@
 :soccer:Me gusta el futbol es una de mis grandes pasiones
 
 
-:nerd_face:Me gustaria estudiar en una unversidad que se muy inductiva en el ambito del deporte y el estudio
-
-
-:see_no_evil:La carrera universitaria que me gustariaq seguir el ingenieria electronica o comercio internacional
-
 
 :video_game:Me gusta jugar el videojuego fifa 21
 
